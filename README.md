@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kparrish1814@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/kelly-parrish-84040a23a/](https://www.linkedin.com/in/kelly-parrish-84040a23a/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/kelly-parrish-kipcodes/](https://www.linkedin.com/in/kelly-parrish-kipcodes/)
 
 - ⚡ Fun fact **I play video games and draw in my spare time**
 
